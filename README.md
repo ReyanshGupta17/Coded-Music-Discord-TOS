@@ -1,4 +1,4 @@
-# **[Terms of Service of Akito Discord Bot](https://dsc.gg/codedmusic)**
+# **[Terms of Service of Coded Music Discord Bot](https://dsc.gg/codedmusic)**
 
 
 
