@@ -2,7 +2,7 @@
 
 
 
-Here **Coded Music **/ **We** / **Our** refers to ("**[bot](https://top.gg/bot/885876809776893964)**" or "**[developer](https://github.com/EitoZX)**")
+Here **Coded Music **/ **We** / **Our** refers to ("**[bot](https://dsc.gg/codedmusic)**" or "**[developer](https://github.com/ReyanshGupta17)**")
 
 ---
 
